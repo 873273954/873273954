@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @873273954.Welcome to my account!
 
-      Hello, I am an undergraduate from Zhejiang Institute of Science and Technology and a junior. I am approaching a senior. 
-
-I am seeking an internship with a app-end development engineer or web front-end development designer... …
+      Hello, I am an undergraduate from Zhejiang Institute of Science and Technology and a junior.
+      
+I am approaching a senior,and I am seeking an internship with a app-end development engineer or web front-end development designer...
 
 Has presided over the volunteer project planning for many times.
 
