@@ -18,7 +18,7 @@ So far, I have mastered the java,javaee language, MySQL, has basically mastered 
 
 In addition to being familiar with daily computer operation and maintenance, I also taught myself uniAPP design, and learned to design a small program of imitation community making friends by myself.
 
-During my college years, I relied on Hangzhou, part-time, Shanghai, Ningbo and Nanjing.
+During college, I visited Hangzhou, Shanghai, Ningbo and Nanjing through the money earned from part-time jobs.
 
 
 
